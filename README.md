@@ -7,7 +7,7 @@
 
 - 🌱 I’m currently learning web development **web development**
 
-- 👯 I’m looking to collaborate on **coding**
+- 👯 I’m looking to collaborate on  **coding**
 
 - 📫 How to reach me **jaani100010@gmail.com**
 
