@@ -9,7 +9,7 @@
 
 - 👯 I’m looking to collaborate on **coding**
 
-- 📫 How to reach me jaani100010@gmail.com **jaani100010@gmail.com**
+- 📫 How to reach me **jaani100010@gmail.com**
 
 - ⚡ Fun fact **I am a junior web developer**
 
